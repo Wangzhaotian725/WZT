@@ -1,2 +1,3 @@
-# WZT
-I can read the ingredient on a gum wrapper and unlock the secrets of the universe.
+# 欢迎来到汪曌天的主页
+我也不知道这个东西有什么用，所以先姑且这样写着。
+
